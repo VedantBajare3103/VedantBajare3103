@@ -6,5 +6,7 @@ I’m a tech enthusiast with a love for all things innovative 🛠️, inventive
 Whether you’re looking to scale up an idea or need a fresh perspective to bring it to life—guess what? You’ve found your collaborator! ✌🏻
 
 📬 Contact
+
 Let’s connect:
+
 📧 Email: vedantbajare23@gmail.com
